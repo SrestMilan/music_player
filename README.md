@@ -6,3 +6,4 @@
 ![Screenshot 2024-01-03 075007](https://github.com/SrestMilan/music_player/assets/77192754/8c456c03-bdfe-4f79-a7a4-963b0826ece1)
 
 
+![Screenshot 2024-01-03 075007](https://github.com/SrestMilan/music_player/assets/77192754/48ac9aee-e350-4b8b-997f-f6922d7e8877)
